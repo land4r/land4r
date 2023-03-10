@@ -1,4 +1,4 @@
-whats good my guy
+nerd shit
 
 <!---
 land4r/land4r is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
